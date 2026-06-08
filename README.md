@@ -2,6 +2,8 @@
 	
 ![](https://komarev.com/ghpvc/?username=next-to-normal&label=♡&color=grey)
 
+![](https://files.catbox.moe/su58eo.jpeg)
+
 </p>
 <p align="center">
 
