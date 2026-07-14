@@ -1,3 +1,6 @@
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[![Typing SVG](https://readme-typing-svg.demolab.com?font=Yuyu+Short&pause=1000&color=F78B3C&repeat=false&width=435&lines=Best+view+on+computer%2Flaptop!)](https://git.io/typing-svg)
+
+
 <p align="center">
 	
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=next-to-normal&label=♡&color=orange&style=for-the-badge)
